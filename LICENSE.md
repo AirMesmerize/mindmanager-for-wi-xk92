@@ -1,4 +1,4 @@
-
+Enhance XMind for Windows with premium XMind for Windows Extension | Gantt-view + mind-map-creation, the #1 extension. Includes Gantt-view and mind-map-creation for a smoother and
 
 
 
